@@ -6,6 +6,8 @@
   > 需要每日签到
   >每次签到获得的流量大小不同
 - 收费路线是按月来算(每月300G)
+### 配图
+![image](https://user-images.githubusercontent.com/53927741/180398043-d34a4e1e-e47b-4229-ac8c-194aa79aef90.png)
 ---
 
 ## 魔戒(同事用)
