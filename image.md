@@ -25,3 +25,4 @@
 ![4-1](https://user-images.githubusercontent.com/53927741/191020089-e09bf8bb-1c96-4a36-aa49-4ead77ae46ef.jpg)
 ![主(1)](https://user-images.githubusercontent.com/53927741/191020091-71cab3ef-acef-449a-95ac-ea70af6cbfcf.jpg)
 ![主-彩](https://user-images.githubusercontent.com/53927741/191020095-5f3b8663-b783-4974-9cc1-a6fcc4e19d83.jpg)
+![微信图片_20220920102829](https://user-images.githubusercontent.com/53927741/191154568-ab8602f3-9680-4bb2-9706-e45c194af2cc.jpg)
